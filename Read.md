@@ -1,0 +1,1 @@
+This file describes how to make aloo gobi curry using diff. sauces and potatoes(aloo) and cauliflower(gopi),
